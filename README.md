@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DrLudicrous
+- 👋 Hi, I’m @DrLudicrous / George 
 - 👀 I’m interested in engineering, gaming, software and networking
 - 🌱 I’m currently learning as much as i can. I'll put my hand to anything!
 - 💞️ I’m looking to collaborate on anything i can do!
